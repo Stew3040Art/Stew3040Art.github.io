@@ -1,3 +1,7 @@
+---
+title: I Love You Tom
+---
+
 # Tom Cruise
 
 My name speaks for itself.
